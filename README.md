@@ -1,5 +1,5 @@
 # 💫 About Me:
-✔️ im currently on my own projects<br>✔️ im looking to collaborate with others developers 💻 <br>✔️ im I am constantly learning new technologies 💬 <br>✔️ ask me about backend projects  🖥️<br>✔️ im looking for team working 🌟<br>
+✔️ iIm currently on my own projects<br>✔️ Im looking to collaborate with others developers 💻 <br>✔️ Im constantly learning new technologies 💬 <br>✔️ ask me about backend projects  🖥️<br>✔️ Im looking for team working 🌟<br>
 
 
 ## 🌐 Socials:
